@@ -1,1 +1,0 @@
-# supergeekscuritiba.github.io
